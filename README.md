@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://telegra.ph/file/3c50226a49384d2c14ce2.jpg" alt="RZX GAMZ" width="500"/>
+<img src="https://ibb.co/NWw1mqV" alt="RZX GAMZ" width="500"/>
 </p>
 <p align="center">
 RZX GAMZ
