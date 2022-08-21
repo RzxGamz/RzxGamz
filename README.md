@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://ibb.co/NWw1mqV" alt="RZX GAMZ" width="500"/>
+<img src="https://i.postimg.cc/dtKntsXX/seo-optimization-abstract-business-background-with-doodle-icons-diagram-magnifier-document-cogwheel.jpg" alt="RZX GAMZ" width="500"/>
 </p>
 <p align="center">
 RZX GAMZ
